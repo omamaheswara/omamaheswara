@@ -1,4 +1,4 @@
-## Hi there 👋
+## OMAMA HESWARA
 
 <!--
 **omamaheswara/omamaheswara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
